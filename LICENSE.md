@@ -1,4 +1,4 @@
-# 
+# Novo DaVinci Resolve para PC plugins é o melhor DaVinci Resolve para PC plugins com animação de quadros-chave e camadas 3D. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
